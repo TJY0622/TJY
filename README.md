@@ -1,2 +1,2 @@
 # TJY
-A newcomer who loves learning and research
+A newcomer oves learning and research
